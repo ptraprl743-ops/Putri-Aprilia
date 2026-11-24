@@ -1,4 +1,4 @@
-# Halo, saya Putri-Aprilia!
+# Hallo, I'm Putri-Aprilia!
 I’m drawn to the way communication connects people, builds relationships, and turns ideas into meaningful experiences. Through my organizational experience, I’ve been involved in public relations, media partnerships, publication management, and event coordination.
 
 I enjoy bringing people together, organizing ideas, and making sure information and collaboration flow effectively.
